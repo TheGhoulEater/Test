@@ -1,14 +1,6 @@
 sasaaasdadaad
 XvxVxVS
-sv
-dv
-dv
-dvd
-kkkkkkkkkksdafsadfsadf
-
-sdfdsf
-sdfsdf
-sdfsdfasdasd
+svfsdf
 sdgsdg
 llllll
 dasdas
